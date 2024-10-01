@@ -8,7 +8,7 @@
 
 - 📫 **Reach Me:** You can connect with me via [email](mailto:moralesjestly7@gmail.com).
 
-- 😄 **Pronouns:** He/Him
+- 😄 **Pronouns:** She/Her
 
 - ⚡ **Fun Fact:** I’m a self-taught developer and I love working on projects that merge technology and environmental solutions!
 
